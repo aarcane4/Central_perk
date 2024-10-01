@@ -10,6 +10,6 @@
 ### Plzz give me a star 🎇
 
 
-##### By Rozen
+##### 
 
 ### Peace Out ✌
